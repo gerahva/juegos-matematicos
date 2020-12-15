@@ -1,7 +1,7 @@
 # Política de Privacidad, Juegos Matemáticos
 
     Efectiva desde: 10 de Diciembre de 2020
-    Última revisión: 10 de Diciembre de 2020
+    Última revisión: 15 de Diciembre de 2020
 
 ## Introducción
 
